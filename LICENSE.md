@@ -1,4 +1,4 @@
-# 
+# Enhance TreeSize for PC | TreeSize for Windows with exclusive TreeSize for PC | TreeSize for Windows Addon | duplicate-detection + network-drive-support, the #1 addon. Includes
 
 
 
